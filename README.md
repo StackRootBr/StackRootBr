@@ -272,7 +272,7 @@ Quer conversar sobre um problema, processo ou oportunidade de automação?
 
 **Stack Root**
 
-📧 E-mail: em breve  
+📧 E-mail: stackrootbr@gmail.com
 🌐 Website: em breve  
 💼 LinkedIn: em breve
 
